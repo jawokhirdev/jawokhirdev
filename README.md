@@ -19,6 +19,6 @@
 ## Contact:
 
 - **Telegram:** [@jawokhir](https://t.me/jawokhir)
-- **Email:** [javoxirbekraxmonaliyev@gmail.com](mailto:javoxirbekraxmonaliyev@gmail.com)
+- **Email:** [j.rakhmonalioff@gmail.com](mailto:j.rakhmonalioff@gmail.com)
 - **GitHub:** [jawokhirdev](https://github.com/jawokhirdev/)
 - **Phone:** +998900586855
